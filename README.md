@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **achintya8122005@gmail.com**
 
-- 📄 Know about my experiences [Click here](https://docs.google.com/document/d/1FMXg0gGFILnH1xGURncdjyOOhZfKZsRQpBug1qkTPBc/edit?usp=sharing)
+- 📄 Checkout my Resume [Click here](https://docs.google.com/document/d/1FMXg0gGFILnH1xGURncdjyOOhZfKZsRQpBug1qkTPBc/edit?usp=sharing)
 
 - 📰 Read my articles on [Medium](https://medium.com/@achintya8122005)
 
