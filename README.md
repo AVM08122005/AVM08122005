@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [Click here](https://docs.google.com/document/d/1FMXg0gGFILnH1xGURncdjyOOhZfKZsRQpBug1qkTPBc/edit?usp=sharing)
 
-- 📰 Read my blogs at 
+- 📰 Read my articles on [Medium](https://medium.com/@achintya8122005)
 
 - ⚡ Fun fact **I think I can travel 100 countries by the time I turn 50**
 
