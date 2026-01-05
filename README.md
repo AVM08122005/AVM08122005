@@ -11,7 +11,9 @@
 
 - 📫 How to reach me **achintya8122005@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qUmyG8mZfoy_tHn6rxzVIOcGTcH0YqRc/view?usp=sharing](https://drive.google.com/file/d/1qUmyG8mZfoy_tHn6rxzVIOcGTcH0YqRc/view?usp=sharing)
+- 📄 Know about my experiences [Click here](https://docs.google.com/document/d/1FMXg0gGFILnH1xGURncdjyOOhZfKZsRQpBug1qkTPBc/edit?usp=sharing)
+
+- 📰 Read my blogs at 
 
 - ⚡ Fun fact **I think I can travel 100 countries by the time I turn 50**
 
